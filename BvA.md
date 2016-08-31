@@ -1,15 +1,15 @@
 Over Bailey :)
 
-Voornaam:		Bailey
+Voornaam: Bailey
 
-Tussenvoegsel:	van
+Tussenvoegsel: van
 
-Achternaam:		Antwerpen
+Achternaam: Antwerpen
 
-Woonplaats:		Zwijndrecht
+Woonplaats: Zwijndrecht
 
-E-mail:			99041848@mydavinci.nl
+E-mail: 99041848@mydavinci.nl
 
-Prive E-mail:	baileyzx12@gmail.com
+Prive E-mail: baileyzx12@gmail.com
 
 Telefoonnummer: 06-39110472
