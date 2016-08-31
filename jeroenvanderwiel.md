@@ -12,4 +12,4 @@
 **Tel**: 06-36125627
 
 **Vriendin en dochter**
-![Vriendin en dochter](https://scontent-amt2-1.xx.fbcdn.net/v/t1.0-9/311601_388301307885428_128794160_n.jpg?oh=f18a88d658afd9b5fb70c85ba18cc945&oe=5850EB72)
+![Vriendin en dochter](https://scontent-amt2-1.xx.fbcdn.net/v/t1.0-0/s480x480/14089217_817440265024648_3420348001562563036_n.jpg?oh=e319e341f46cee49067372f83aea9497&oe=584B630F)
