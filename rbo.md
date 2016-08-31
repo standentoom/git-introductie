@@ -5,6 +5,6 @@
 
 **Woonplaats**: Hoogvliet Rotterdam
 
-**Email**: [99041876@mydavinci.nl](99041876@mydavinci.nl)/[ric.ric.boon@gmail.com](ric.ric.boon@gmail.com)
+**Email**: [99041876@mydavinci.nl](99041876@mydavinci.nl)
 
 **Tel**: 06 45974884
