@@ -10,4 +10,4 @@
 **Tel**: 06 - 39 76 73 14
 
 
-![Meneer Huisman heeft swag...](https://www.jwhuisman.nl/custom/big/profile.jpg)
+![Meneer Huisman heeft swag...](http://www.jwhuisman.nl/custom/big/profile.jpg)
